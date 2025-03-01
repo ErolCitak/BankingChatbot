@@ -7,4 +7,4 @@ Any comments, error fixes, or improvements are welcome!
 Thanks!
 
 Medium link: https://medium.com/@eroltak
-Post link:
+Post link: <will be announced>
